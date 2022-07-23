@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **sugammehta0301@gmail.com**
 
-- Persoal Website - https://sugam0301.github.io/
+- Personal Website - https://sugam0301.github.io/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
